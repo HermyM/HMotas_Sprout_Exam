@@ -1,1 +1,0 @@
-# HMotas_Sprout_Exam
